@@ -1,1 +1,1 @@
-The code will be available latter.
+The code will be available later.
